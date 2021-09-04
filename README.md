@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @RafaelPolidoro
+- 🌱 I study at the University of Caxias do Sul
+- 📫 My Student email: rcpolidoro@ucs.br
+- 👀 My personal email: rafael.polidoro.32@gmail.com
