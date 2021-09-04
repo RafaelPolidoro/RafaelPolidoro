@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @RafaelPolidoro
+- 👋 Hi, I’m Rafael Carminatti Polidoro
 - 🌱 I study at the University of Caxias do Sul
 - 📫 My Student email: rcpolidoro@ucs.br
 - 👀 My personal email: rafael.polidoro.32@gmail.com
